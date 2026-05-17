@@ -1,4 +1,4 @@
-# 
+# instant Adobe Photoshop para PC ejecutor es el mejor Adobe Photoshop para PC ejecutor con PDF interactivo y acciones automatizadas. Seguro, confiable y optimizado para el máximo
 
 
 
